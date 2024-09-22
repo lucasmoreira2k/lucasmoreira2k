@@ -32,7 +32,6 @@
 📫 **How to reach me:**
 - **Email:** [lucasmoreira115k@gmail.com](mailto:lucasmoreira115k@gmail.com)
 - **LinkedIn:** [Lucas Moreira de Lacerda](https://www.linkedin.com/in/lucasmoreira115k/)
-- **Phone:** [47 997801996](https://wa.me/5547997801996)
 
 
 
